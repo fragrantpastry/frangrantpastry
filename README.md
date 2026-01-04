@@ -10,7 +10,7 @@
 ------ Likes/Dislikes 
 
 ♡ | Likes:  KPOP - Katseye, Seventeen, Cortis, TXT, Aespa, Ateez
-            Anime - Shoujo : Lovely Complex, Kamisama Kiss, Ohshc, Fruit Basket, Blue Spring Ride 
+            Anime - Shoujo : Lovely Complex, Into the forest of fireflies light, Kamisama Kiss, Ohshc, Fruit Basket, Blue Spring Ride, Apothecary Diaries 
                     Shounen: Demon Slayer, Tokyo Revengers, Blue Lock, Haikyuu
             Games - Otome , RPG, Cooking, Visual Novel (Check my itch.io account for visual novel games i love!!)
             Animals - Cats & Foxes
